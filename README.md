@@ -1,2 +1,2 @@
                                   🗽🍀-自👽由-🏴‍☠️✌️
-                                 <raYCønnectiøn>
+                                 <raYC•nnecti•n>
